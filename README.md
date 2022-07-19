@@ -1,1 +1,3 @@
 # lollollollollollollollollollollollollollollollollollollollollollollollollollollollollollollollolloll
+minecraft is cool
+do /join hex2585 on minefort
